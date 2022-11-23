@@ -1,4 +1,4 @@
-# My username is BialyKotek (ang. White Cat)
+# My username is BialyKotek (ang. White Cato Overdrive)
 
 ### 👀 **My Social Media**
 [Twitch][1], [Youtube][2]
